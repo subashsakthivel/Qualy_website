@@ -1,1 +1,12 @@
 # Qualy_website
+
+tools
+
+https://owr.life/?fbclid=PAAaa7qGTvOXQWZg4oQDmDeoM17ylUxWiF4fdfE3HLQEKzzI9bXN_U9G0YXuk_aem_AeKNIZRLUoHAI5TcwI-15zpzH91esCDPqY4idVHyUuWDGYdZe5oZeMgRjfw2n7QogLX7gVcKq0-LTCtfWI0Ch7T8
+
+https://www.monkbreed.com/product-category/tees/?fbclid=PAAaa-uA3J6ie5ARq8gS1Y6mjdUZ7-QGa-S8G3mdSosDABs-aoD_k57gIawD4_aem_AVoWHUGexe8oMIxU9Tv6UXg9vnmyJDheXmaYjC4CTs126lbADK132NIQ7SpWyFgW3LnElAeOPL8xJaPx-9MV0Xdz
+
+https://bakedlasun.in/?fbclid=PAAaauEOvhcQ-kwtJkOd27Rws-9qkP9w4-tgj00DOaagq4H-fsR6s60PgoiM4_aem_AX-DxjQ_GuV-y5rDRbKN895me4w0UNzYt_GIaHWBcO5ofT5pN8Y41HBHZqFsKJ95Qyo8QjbjLUJ0kasFMaldYHgF
+
+app.uizard.com
+
